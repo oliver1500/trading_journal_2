@@ -3,3 +3,6 @@
 Very sharp downward slop, after which I drew some resistance and support lines or at least what I though they would be. I am a beginner after all. So when it breaks one of them, should I buy or short?
 Just adding some extra info I saw, not sure yet how to interpret. Volume is quite low, small wicks.
 Overall I'd say it's a short even tho it crossed the resistance up there. Just a hunch you know but we don't trade on hunches and neither do we trade when we have no idea what we are doing right :D
+
+What I didn't add before: weak to spy so definetely not a long. Also there is the aftermath. Would that have been a short opportunity when it penetraded the support later when I extend the support line. Is that even a proper support line? I mean knowing the outcome of the day it wasn't a good place to short but why?
+<img width="653" height="414" alt="image" src="https://github.com/user-attachments/assets/645c34bc-37dd-4f07-bc48-5ac0af0729ce" />
