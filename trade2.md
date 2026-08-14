@@ -9,3 +9,7 @@ A little later, spy is falling, bearish sentiment.
 <img width="659" height="415" alt="image" src="https://github.com/user-attachments/assets/eab23096-c4a9-4490-85e4-1cb78cbdda9f" />
 
 And NBIS trading sideways. If market happens to turn, it could shoot up.
+
+On the next picture we can see how the yesterday's high is acting as a resistance to NBIS. Wow my first time identifying and actually seeing it with my own eyes.
+
+<img width="650" height="410" alt="image" src="https://github.com/user-attachments/assets/27f75409-4d3e-4120-89c3-9436a3ebcdd9" />
